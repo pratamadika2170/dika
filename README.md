@@ -1,0 +1,2 @@
+# dika
+team crypto kids
